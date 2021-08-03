@@ -1,1 +1,0 @@
-# Funkcion-lis-programoz-s
